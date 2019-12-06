@@ -8,4 +8,4 @@ BITLOGIC will continue with this loosely defined **Make Your Brain Use Good Judg
 
 So please, police yourselves and use good judgment so we don’t have to implement a dress code as a result of one individual’s bad judgment, which might lead to disgruntled peers having to visit a psychiatrist to get over their emotional pain and suffering.
 
-And that it’s. The end. It gives employees the benefit of the doubt that they can manage to act like adults, and it works like a dream as long as people are already on board with the company culture.
+That's it. The end. It gives employees the benefit of the doubt that they can manage to act like adults, and it works like a dream as long as people are already on board with the company culture.
